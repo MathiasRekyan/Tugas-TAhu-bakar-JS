@@ -1,2 +1,2 @@
 # Tugas-TAhu-bakar-JS
-Revan Minimal Ngokop
+Aku suka pak dinar pake love
